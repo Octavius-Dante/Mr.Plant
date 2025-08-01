@@ -23,8 +23,8 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 
 ## Gardening + Plant care + pathology
 
-[Hibiscus sapling preparation](https://www.youtube.com/shorts/tlP5RzlUVKs?feature=share)
-
+- [Hibiscus sapling preparation](https://www.youtube.com/shorts/tlP5RzlUVKs?feature=share)
+- [Trial and error ideas garden](https://www.youtube.com/@harandhor/shorts)
 
 </BR></BR>
 
