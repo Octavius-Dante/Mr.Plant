@@ -18,6 +18,7 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 - [Terrarium Building Course A-Z youtube playlist](https://www.youtube.com/playlist?list=PL2B6lN6qObdqpxnaF3u30ETDgYVID3PlI)
 - [Terrarium plants starter](https://www.youtube.com/shorts/XFGKAgupQrg?feature=share)
 - [Aquaphonic garlic](https://www.youtube.com/shorts/0oKaiWRiUXE?feature=share)
+- [Best Aquarium ideas](https://www.youtube.com/shorts/y3JOdA9pEcs?feature=share) - check the setup
   
 </BR></BR>
 
