@@ -25,6 +25,7 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 
 - [Hibiscus sapling preparation](https://www.youtube.com/shorts/tlP5RzlUVKs?feature=share)
 - [Trial and error ideas garden](https://www.youtube.com/@harandhor/shorts)
+- [Best tree with low maintenance - INDIA](https://www.youtube.com/shorts/8GVJWmVoYkk?feature=share)
 
 </BR></BR>
 
