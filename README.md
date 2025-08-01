@@ -19,6 +19,14 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 - [Terrarium plants starter](https://www.youtube.com/shorts/XFGKAgupQrg?feature=share)
 - [Aquaphonic garlic](https://www.youtube.com/shorts/0oKaiWRiUXE?feature=share)
 - [Best Aquarium ideas](https://www.youtube.com/shorts/y3JOdA9pEcs?feature=share) - check the setup
+
+</BR></BR>
+
+## check the cahnnel 
+
+- [Aquahusk](https://www.youtube.com/@Aquahusk/shorts)
+- [Fish 4 ever](https://www.youtube.com/@nicefishtank/shorts)
+
   
 </BR></BR>
 
