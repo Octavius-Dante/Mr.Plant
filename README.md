@@ -19,4 +19,23 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 - [Terrarium plants starter](https://www.youtube.com/shorts/XFGKAgupQrg?feature=share)
 - [Aquaphonic garlic](https://www.youtube.com/shorts/0oKaiWRiUXE?feature=share)
   
-</BR>
+</BR></BR>
+
+## Gardening + Plant care + pathology
+
+[Hibiscus sapling preparation](https://www.youtube.com/shorts/tlP5RzlUVKs?feature=share)
+
+
+</BR></BR>
+
+## 
+
+</br></br>
+
+<p align="center"> 
+<a href="https://github.com/Octavius-Dante/Mr.Index"> >> Go To INDEX << </a> 
+</p>
+
+##
+
+</br></br></br>
