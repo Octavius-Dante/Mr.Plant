@@ -22,7 +22,7 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 
 </BR></BR>
 
-## check the cahnnel 
+## check the channel for ideas
 
 - [Aquahusk](https://www.youtube.com/@Aquahusk/shorts)
 - [Fish 4 ever](https://www.youtube.com/@nicefishtank/shorts)
