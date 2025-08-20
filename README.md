@@ -40,7 +40,8 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 - Trial and error ideas garden [1](https://www.youtube.com/@harandhor/shorts) | [2](https://www.youtube.com/shorts/X-gf3Vwa9lQ?feature=share)
 - [Best tree with low maintenance - INDIA](https://www.youtube.com/shorts/8GVJWmVoYkk?feature=share)
 - [Plant Care channel #1 Kalpaka vricsha](https://www.youtube.com/@KalpavrikshaParachute/shorts)
-
+- [Kolinji fertiliser natural](https://www.youtube.com/shorts/uyGwU6uA0_I?feature=share)
+  
 </BR></BR>
 
 ## Food plants 
