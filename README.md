@@ -42,6 +42,13 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 
 </BR></BR>
 
+## Food plants 
+
+- [Cucumber at home](https://www.youtube.com/shorts/6-Yh5rHd6kw?feature=share)
+
+
+</BR></BR>
+
 ## Grow Spirulina
 
 [Spirulina #1](https://www.youtube.com/watch?v=XlHwlMFuEE4&ab_channel=SpicyMoustache)
