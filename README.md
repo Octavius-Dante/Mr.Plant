@@ -20,7 +20,7 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 - [Aquaphonic garlic](https://www.youtube.com/shorts/0oKaiWRiUXE?feature=share)
 - [Best Aquarium ideas](https://www.youtube.com/shorts/y3JOdA9pEcs?feature=share) - check the setup
 - [Moss Terrarium](https://www.youtube.com/shorts/lNZOnJHp4I8?feature=share) - check the background moss farm 
-- [Moss Channel](https://www.youtube.com/@nanamoss/shorts) | [2](https://www.youtube.com/@michikusa3193/videos)
+- [Moss Channel](https://www.youtube.com/@nanamoss/shorts) | [2](https://www.youtube.com/@michikusa3193/videos) | [3](https://www.youtube.com/@forestfloorterrariums)
 
 </BR></BR>
 
