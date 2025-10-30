@@ -3,7 +3,7 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 
 </BR></BR>
 
-## Gardening 
+## BASEMENT Gardening  + INDOOR
 
 - [Indoor plants Tropical setup #1](https://www.youtube.com/shorts/1OGKXReUgoQ?feature=share)
 - [Food plantaiton basement](https://www.youtube.com/watch?v=sPuMndeB8PE)
