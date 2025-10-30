@@ -35,7 +35,7 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 - [Terrarium glass box ETSY](https://www.etsy.com/ca/listing/4384527816/emerald-moss-terrarium-handmade?)
 - [Parametric Moss wall](https://www.youtube.com/shorts/X5zw6DNYmCU?feature=share)
 - [Aquarium plant seeds carpeting](https://www.indoorecosystem.net/guides/aquarium-carpet-seeds-scam)
- 
+- [Auqarium setup 1](https://in.pinterest.com/pin/74168725108870409/) | [tank](https://plantedpro.com/collections/all-fish-tanks-jars) | [Inspiration inddoor gardern cabinet](https://in.pinterest.com/pin/211174977957755/) | [maintenance](https://in.pinterest.com/pin/3237030977579648/)
 
 </BR></BR>
 
