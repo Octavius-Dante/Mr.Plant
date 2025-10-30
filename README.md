@@ -1,6 +1,31 @@
 # Mr.Plant
 Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 
+
+</BR></BR>
+```
+
+terrarium setup 
+
+parametric moss wall 
+
+https://www.youtube.com/shorts/X5zw6DNYmCU?feature=share
+
+
+rainforest terrarium 
+
+https://in.pinterest.com/pin/1759287348535601/
+
+https://www.youtube.com/shorts/pRqercMV_C4?feature=share
+
+https://www.etsy.com/ca/listing/4384527816/emerald-moss-terrarium-handmade?
+
+https://www.youtube.com/watch?v=3HjOTSlGBJ4
+
+https://www.youtube.com/watch?v=IAz5acixKEY
+
+```
+
 </BR></BR>
 
 ## Aquascaping
