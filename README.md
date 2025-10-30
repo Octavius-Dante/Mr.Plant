@@ -1,30 +1,13 @@
 # Mr.Plant
 Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 
-
 </BR></BR>
-```
 
-terrarium setup 
+## Gardening 
 
-parametric moss wall 
+- [Indoor plants Tropical setup #1](https://www.youtube.com/shorts/1OGKXReUgoQ?feature=share)
+- [Food plantaiton basement](https://www.youtube.com/watch?v=sPuMndeB8PE)
 
-https://www.youtube.com/shorts/X5zw6DNYmCU?feature=share
-
-
-rainforest terrarium 
-
-https://in.pinterest.com/pin/1759287348535601/
-
-https://www.youtube.com/shorts/pRqercMV_C4?feature=share
-
-https://www.etsy.com/ca/listing/4384527816/emerald-moss-terrarium-handmade?
-
-https://www.youtube.com/watch?v=3HjOTSlGBJ4
-
-https://www.youtube.com/watch?v=IAz5acixKEY
-
-```
 
 </BR></BR>
 
@@ -46,6 +29,13 @@ https://www.youtube.com/watch?v=IAz5acixKEY
 - [Best Aquarium ideas](https://www.youtube.com/shorts/y3JOdA9pEcs?feature=share) - check the setup
 - [Moss Terrarium](https://www.youtube.com/shorts/lNZOnJHp4I8?feature=share) - check the background moss farm 
 - [Moss Channel](https://www.youtube.com/@nanamoss/shorts) | [2](https://www.youtube.com/@michikusa3193/videos) | [3](https://www.youtube.com/@forestfloorterrariums)
+- [Watrerfall terrarium - Small](https://www.youtube.com/watch?v=3HjOTSlGBJ4)
+- [Watrerfall terrarium - Large](https://in.pinterest.com/pin/1759287348535601/)
+- [Raining Fern jungle terrraium](https://www.youtube.com/watch?v=IAz5acixKEY)
+- [Terrarium glass box ETSY](https://www.etsy.com/ca/listing/4384527816/emerald-moss-terrarium-handmade?)
+- [Parametric Moss wall](https://www.youtube.com/shorts/X5zw6DNYmCU?feature=share)
+- [Aquarium plant seeds carpeting](https://www.indoorecosystem.net/guides/aquarium-carpet-seeds-scam)
+ 
 
 </BR></BR>
 
