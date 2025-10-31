@@ -39,7 +39,6 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 - [Auqarium setup 1](https://in.pinterest.com/pin/74168725108870409/) | [tank](https://plantedpro.com/collections/all-fish-tanks-jars) | [Inspiration inddoor gardern cabinet](https://in.pinterest.com/pin/211174977957755/) | [maintenance](https://in.pinterest.com/pin/3237030977579648/)
 - [Table top Rainfall setup](https://www.youtube.com/watch?v=Vw4xUsyh8Tc)
 - [Small Hydrophonic setup](https://www.youtube.com/watch?v=44M8nyi973k)
-- 
 
 </BR></BR>
 
