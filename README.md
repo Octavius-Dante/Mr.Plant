@@ -7,7 +7,8 @@ Aquarium / Terrarium / Hydrophonic / Aquaphonic / Gardening
 
 - [Indoor plants Tropical setup #1](https://www.youtube.com/shorts/1OGKXReUgoQ?feature=share) | [Basement Gardening](https://www.youtube.com/watch?v=idYkEa_zCBM)
 - [Food plantaiton basement](https://www.youtube.com/watch?v=sPuMndeB8PE)
-- [Grow Lights](https://vivosun.com/Grow_Light-c3) + ([Blog](https://vivosun.com/growing_guide/hanging-grow-lights/)
+- [Grow Lights](https://vivosun.com/Grow_Light-c3) + [Blog](https://vivosun.com/growing_guide/hanging-grow-lights/)
+- [Plant Cabinet Indoor ideas #1](https://plnts.com/en/blog/where-to-buy-greenhouse-cabinets-and-alternatives)
 
 
 </BR></BR>
